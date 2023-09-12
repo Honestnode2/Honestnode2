@@ -2,5 +2,5 @@
 - 👀 I’m interested in ... Cryptocurrency 
 - 🌱 I’m currently learning ... Cryptocurrency 
 - 💞️ I’m looking to collaborate on ... Crypto 
-- 📫 How to reach me 
+- 📫 How to reach me... when it's too late
 
